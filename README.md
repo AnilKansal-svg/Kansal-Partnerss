@@ -1,1 +1,1 @@
-# Kansal-Partnerss
+# K-Ps
